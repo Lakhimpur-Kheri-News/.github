@@ -2,6 +2,8 @@
 
 Welcome to **[LakhimpurKheri.com](https://lakhimpurkheri.com/)**, your one-stop destination for all the latest updates, breaking news, and in-depth stories from Lakhimpur Kheri. Whether you’re a resident of this vibrant region or someone keen to stay informed about its events, we’ve got you covered. Our website is dedicated to providing comprehensive coverage of Lakhimpur Kheri news, ensuring you never miss out on the latest developments.
 
+## [👉👉Live Lakhimpur Kheri News](https://lakhimpurkheri.com/category/lakhimpur-kheri/)
+
 ## Why Choose LakhimpurKheri.com for Your Daily News?
 
 At **LakhimpurKheri.com**, we understand the importance of reliable and timely information. Our platform is committed to:
@@ -78,7 +80,7 @@ Engage with us on social media to stay connected:
 - **Twitter**: Follow us for breaking news and quick insights.
 - **Instagram**: Explore Lakhimpur Kheri through stunning visuals.
 
-## [Live Lakhimpur Kheri News](https://lakhimpurkheri.com/category/lakhimpur-kheri/)
+## [👉👉Live Lakhimpur Kheri News](https://lakhimpurkheri.com/category/lakhimpur-kheri/)
 
 ## Conclusion: Stay Informed with LakhimpurKheri.com
 
